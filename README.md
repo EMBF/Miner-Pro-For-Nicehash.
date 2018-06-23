@@ -1,0 +1,1 @@
+# Miner-Pro-For-Nicehash.
